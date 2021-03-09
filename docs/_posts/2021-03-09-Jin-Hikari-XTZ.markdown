@@ -1,0 +1,1 @@
+Jin Hikari, XTZ hits $1,000!
